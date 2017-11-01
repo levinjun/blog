@@ -1,5 +1,5 @@
-##相互理解，才能一起生活  
-###英文  
+## 相互理解，才能一起生活  
+### 英文  
 Sherry is in her **internship** now. Last month, she bought a **lipstick** which she really liked.
 
 This lipstick cost her more than 50 dollars. It's not cheap, but it made her happy, because it was the one that she had been **longing** for a long time.
